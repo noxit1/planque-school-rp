@@ -5,12 +5,7 @@
 
  
  leak sur virtual dev
+https://discord.gg/ybPWtpZhrP
+ 
+ 
 
- 
- discord         
- https://discord.gg/ybPWtpZhrP
- 
- 
- flashbelt 
-
- https://discord.gg/PtXee4aqx3 
