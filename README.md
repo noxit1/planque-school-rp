@@ -4,8 +4,7 @@
 
 
  
- leak sur virtual dev
-https://discord.gg/ybPWtpZhrP
+ leak sur virtual dev         https://discord.gg/ybPWtpZhrP
  
  
 
